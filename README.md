@@ -10,4 +10,4 @@
 
 本站收录各种精选亚洲、欧美及国产视频资源，涵盖福利、无码、免费等多个热门类型。支持高清视频播放，适配各种设备，致力为用户提供稳定流畅的无广告观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phu20250708/phu3 ）</span>
